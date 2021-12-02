@@ -1,7 +1,7 @@
 ## Hello, I’m Matteo! 🍕
 
 
-### I am a Web Developer with a background in Architecture, Project Management and I am a Pizza lover ♥️
+### I am a Web Developer with a background in Architecture, Project Management. I am a Pizza lover ♥️
 
 - 🧑‍💻 I am open to work!
 - 👀 I am interested in cycling and trying to read a book every month!
