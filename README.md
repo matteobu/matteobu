@@ -6,8 +6,8 @@
 - 🧑‍💻 Soon on new projects with amiconsult GmbH!!
 - 👀 I am interested in cycling and trying to read a book every month!
 - 🌱 Book of the Month 📖:
-   ° December: Three Floors Up
-   ° January: When We Cease to Understand the World
+   * December: Three Floors Up
+   * January: When We Cease to Understand the World
 
 
 ### feel free to reach out! 
