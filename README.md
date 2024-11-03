@@ -9,7 +9,7 @@ I'm all about adaptin' and grindin', you feel? I got the skills to deliver tech 
 - 📚 Crime books got me hooked! Total page-turner vibes, you know? 🕵️‍♂️.
 
 ### feel free to reach out! 
-- bucciol.matteo@gmail.com
+- bucciol.matteo@proton.me
 - [x (twitter)](https://twitter.com/dev_m_)
 
 
